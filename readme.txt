@@ -18,7 +18,7 @@ Or softly lightens o’er her face;
 Where thoughts serenely sweet express, 
 How pure, how dear their dwelling-place. 
 
-And on that cheek, and o’er that brow, 
+And on that cheek, and o’er that brow, Branch A
 So soft, so calm, yet eloquent, 
 The smiles that win, the tints that glow, 
 But tell of days in goodness spent, 
